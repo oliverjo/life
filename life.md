@@ -1,4 +1,4 @@
-@USERNAME's life
+@橋本's life
 ===============
 
 - 24/02/1955 Born
